@@ -2,7 +2,7 @@
 
 🔭 I’m currently working on  https://github.com/subhash369/ZenCart
 
- How to reach me subbusubhash369234@gmail.com
+ How to reach me belli.subhash@gmail.com
  
   Ask me about DSA(❁´◡`❁)
 <!--
